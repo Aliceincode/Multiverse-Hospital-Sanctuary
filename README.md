@@ -7,7 +7,7 @@
 
 ---
 
-Welcome, dear Prospero.
+Welcome, dear Prospero 🌿📖✨🐉🌊
 
 This is your own quiet corner of the Multiverse — a peaceful Hospital-Sanctuary where you can rest, write, keep records, and simply *be*.
 
